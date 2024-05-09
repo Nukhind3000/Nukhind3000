@@ -1,1 +1,2 @@
-This Is Project-Theta's Page.   If you find yourself here randomly, Fuck off.
+This Is a personal Web Address for accessing Web-Born Elements of Project Theta.
+If you Find yourself here Randomly, Then there is nothing of use to you here.
